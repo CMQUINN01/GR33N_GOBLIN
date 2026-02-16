@@ -5,4 +5,4 @@ I am an aspiring cloud engineer. A lot of the work that you will see on my profi
 ### Current Experience
 I worked in electrical and mechanical engineering for nearly two years before I decided it wasn't for me.
 
-My most recent experience has been as an IT Technician and an IT Specialist. This is another change.
+My most recent experience has been as an IT Technician and an IT Specialist. Hopefully I can build out a great profile that showcases how far I have come along.
